@@ -1,7 +1,7 @@
 ---
 title: Reflection
 description: Reflect on the little things
-image: cloud.png
+image: reflection.jpg
 
 # Badge style
 style:
