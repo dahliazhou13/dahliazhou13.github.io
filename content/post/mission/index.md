@@ -2,7 +2,7 @@
 title: The Mission
 description: A short story inspired by "FBI Most Wanted" S3E14
 slug: mission
-date: 2022-06-1 16:13:45+0000
+date: 2022-06-01 16:13:45+0000
 image: cover.jpg
 categories:
     - Creative
