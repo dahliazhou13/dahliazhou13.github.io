@@ -30,7 +30,7 @@ I met you at her funeral. I came down, missing her laughter and her eyes curved 
 
 That night, I called you crying, missing her nightly calls to me before depression took away her spark. The other end of the phone call was filled with sadness only describable by your silence.
 
-We bounded through our love for her. Her kindness, the little poem she wrote both of us, her finger nails bitten to so short, and how gorgeously her dress flew in the wind.
+We bonded through our love for her. Her kindness, the little poem she wrote both of us, her finger nails bitten to so short, and how gorgeously her dress flew in the wind.
 
 Your paint brush dirtied your denim overall. The paint stroke chaotically came together to depict nothing but the breathtaking her. We let the sunset reflect on the painting. She was alive again.
 
