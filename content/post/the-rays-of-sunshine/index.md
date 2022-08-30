@@ -58,7 +58,7 @@ From deception disappointment or despair?
 
 Your embrace became my only safe harbour
 
-Your scent lit up all five of my
+Your presence lit up all five of my
 
 Not too sensitive senses
 
