@@ -38,6 +38,8 @@ Yue made an introduction that Zi zoned out during the half of. Typical first-tie
 
 She dragged her heavy bag to the door of class 6, a behaviour the school was against. Bags must be on shoulders. Out was Ming. Zi gave her a big hug, and they squeaked excitedly as the teenagers they were. 
 
-Following Zi was a boy. He was a bit chubby with milk soft skin. The way he walked and waved was feminine and demure. Ming introduced, “This is Xu.” Zi said hi without thinking much, then another boy popped out of the classroom. He was tall, slim, and tanned.
+Following Zi was a boy. He was a bit chubby with milk soft skin. The way he walked and waved was feminine and demure. Ming introduced, “This is Xu.” Zi said hi without thinking much, then another boy popped out of the classroom. 
+
+He was tall, slim, and tanned.
 
 > Photo by <a href="https://unsplash.com/@jizhidexiaohailang?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Jizhidexiaohailang</a> on <a href="https://unsplash.com/photos/people-sitting-inside-room-DJsbfCjhnJ4?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
