@@ -1,6 +1,6 @@
 ---
 title: Pariah
-description: A poem about ADHD
+description: A random essay about ADHD
 slug: pariah
 date: 2024-10-14 19:51:45+0000
 image: cover.jpg
